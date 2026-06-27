@@ -1,0 +1,1 @@
+haloo aku lagi ga enak badan tolong jangan terlalu banyak menggunakan tenaga 
