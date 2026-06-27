@@ -1,1 +1,1 @@
-haloo aku lagi ga enak badan tolong jangan terlalu banyak menggunakan tenaga 
+haloo aku lagi ga enak badan tolong jangan terlalu banyak menggunakan tenaga cyfew67f6wefewc68fce6w7fcew7ugc7uw
